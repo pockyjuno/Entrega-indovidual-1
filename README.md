@@ -1,1 +1,1 @@
-# Entrega-indovidual-1
+# Entrega-individual-1
